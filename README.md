@@ -1,2 +1,0 @@
-mkobayas.github.io
-==================
